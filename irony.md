@@ -1,0 +1,1 @@
+La vita è come la scala di un pollaio, corta e piena di merda.
